@@ -3,7 +3,9 @@ This is a whole *new* language, don't worry if it scares you!
 
 Lumbersexual occupy offal, locavore direct trade letterpress echo park twee photo booth everyday carry ennui tofu. Tofu meggings beard, cold-pressed put a bird on it listicle schlitz bitters. Ugh flexitarian gastropub crucifix, typewriter leggings cred vice kale chips YOLO pork belly portland. Food truck hashtag paleo typewriter, crucifix blue bottle trust fund locavore polaroid. Vice fanny pack typewriter iPhone, chillwave meh pug mixtape mustache bespoke fap readymade. Cred artisan cardigan, tumblr church-key post-ironic kogi aesthetic. Heirloom blue bottle normcore hammock man braid.
 
-Jean shorts YOLO umami viral pickled try-hard. Lumbersexual umami tote bag gentrify bushwick. Helvetica swag pinterest kinfolk schlitz. Godard gentrify biodiesel, ennui man braid farm-to-table fashion axe. Drinking vinegar venmo deep v migas meh try-hard. Kinfolk gastropub squid listicle yuccie. Humblebrag intelligentsia cray actually.
+Jean's shorts are too short 
+
+YOLO umami viral pickled try-hard. Lumbersexual umami tote bag gentrify bushwick. Helvetica swag pinterest kinfolk schlitz. Godard gentrify biodiesel, ennui man braid farm-to-table fashion axe. Drinking vinegar venmo deep v migas meh try-hard. Kinfolk gastropub squid listicle yuccie. Humblebrag intelligentsia cray actually.
 
 Street art bitters knausgaard echo park yr flannel sriracha, kitsch jean shorts schlitz chia gluten-free godard brooklyn asymmetrical. Mlkshk twee asymmetrical next level ennui slow-carb, mixtape williamsburg. Seitan etsy pour-over, synth cronut man braid brunch craft beer deep v celiac. Aesthetic cornhole typewriter ethical. Man braid pitchfork selvage plaid, readymade 3 wolf moon ennui dreamcatcher thundercats. Authentic tilde PBR&B, roof party fingerstache meggings pour-over shabby chic irony hammock beard cred freegan. Etsy franzen leggings offal yuccie YOLO mumblecore.
 
