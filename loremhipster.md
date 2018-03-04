@@ -1,8 +1,3 @@
-
-This is a whole *new* language, don't worry if it scares you!
-
-A new line at the top of the file!
-
 Lumbersexual occupy offal, locavore direct trade letterpress echo park twee photo booth everyday carry ennui tofu. Tofu meggings beard, cold-pressed put a bird on it listicle schlitz bitters. Ugh flexitarian gastropub crucifix, typewriter leggings cred vice kale chips YOLO pork belly portland. Food truck hashtag paleo typewriter, crucifix blue bottle trust fund locavore polaroid. Vice fanny pack typewriter iPhone, chillwave meh pug mixtape mustache bespoke fap readymade. Cred artisan cardigan, tumblr church-key post-ironic kogi aesthetic. Heirloom blue bottle normcore hammock man braid.
 
 Jean's shorts are too short 
