@@ -1,6 +1,6 @@
 # What is this Repository about?
 
-This repository is basically created for beginners who are getting started with learning `Git` and `GitHub`. 
+This repository is primarily created for the developers who are getting started with learning `Git` and `GitHub` to perform experimentation. But essentially everyone is welcome to experimentation.
 
 # What you can do in with repository?
 
